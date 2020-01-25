@@ -1,3 +1,3 @@
 # SImage2
 Updated
-updated by Viveka
+updated by Vardhini
